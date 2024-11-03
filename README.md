@@ -1,8 +1,12 @@
-## MarineMosaic
+## BOO!!
+WELCOMEEEE TO MARINEMOSAIC REPOSITORY
+![2024-11-03 18 44 50](https://github.com/user-attachments/assets/c8ac439a-e652-4706-953e-37c2d547e978)
 
 **This repository is a curated collection of nothing**  *if u wanna int read these info* 
-
+----
 <details>
+ 
+![2024-11-03 18 39 05](https://github.com/user-attachments/assets/6e542770-ea58-4856-b0ce-6183d96f1e83)
 
 <summary>introduction</summary>
 
