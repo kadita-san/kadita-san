@@ -1,5 +1,4 @@
-## BOO!! 
-WELCOME TO MARINEMOSAIC REPOSITORY ![](https://komarev.com/ghpvc/?username=kadita&color=7dcbc1&plastic)
+ ‌‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌  ‌ ‌ ‌    ‌‌‌‌ ‌ ‌ ‌ ‌‌ ‌  ‌‌ ‌ ‌ ‌‌‌ ‌‌‌‌‌‌  ‌  ‌ ‌ ![](https://komarev.com/ghpvc/?username=kadita&color=7dcbc1&plastic)  ‌‌‌‌ ‌  ‌‌‌‌ ‌  ‌‌‌‌ 
 ![2024-11-03 18 44 50](https://github.com/user-attachments/assets/c8ac439a-e652-4706-953e-37c2d547e978)
 
 **This repository is a curated collection of nothing**  *if u wanna int read these info* 
