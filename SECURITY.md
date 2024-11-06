@@ -1,4 +1,4 @@
-*★some tips that maybe useful for protetcing your repository★*
+★some tips that maybe useful for protetcing your repository★
 
 ## Creating a Secure Environment for Your Repository
 
