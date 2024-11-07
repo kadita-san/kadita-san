@@ -47,7 +47,7 @@ _oops.. they found her TwT_
 ![a5c6f2d6c9294084e4e7b90a4a28884f](https://github.com/user-attachments/assets/967fd404-48a7-447c-83e6-a2c0699be882)
 
 - >Btw..i design,draw,animate 2d characters :3
-i like colors and their diff vibe & and i extremely LOVE colors.
+& i extremely LOVE colors and their diff vibes.
 - >i like learning and exploring new things cuz my curiousity won't let me live in peace.
 
 ![9c855cc60f655b4195bf0f34c835038b](https://github.com/user-attachments/assets/e4158d97-2abe-4283-b384-f51f84f08eef)
