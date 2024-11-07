@@ -5,7 +5,8 @@
 ----
 <details>
  
-![2024-11-03 18 39 05](https://github.com/user-attachments/assets/6e542770-ea58-4856-b0ce-6183d96f1e83)
+![ba408e5c97fddd97d6bb98c2734d2af3](https://github.com/user-attachments/assets/4b69e278-638f-483b-8a98-60a35b645692)
+
 
 <summary>introduction</summary>
 
@@ -21,3 +22,42 @@
  - > im not white/blackwashing my cos skins . its just my style 
 
 </details>
+
+<details>
+ 
+ ‌
+ ‌
+ **KEEP SCROLLING OR I WILL RUN AWAY FROM YOU**
+ ‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌
+
+![2024-11-03 18 39 05](https://github.com/user-attachments/assets/6e542770-ea58-4856-b0ce-6183d96f1e83)
+
+
+
+<summary>interests</summary>
+
+- >totally I love Genshin impact and honkai star rail . characters that I love from these cool games are hu tao and houhou , cuz they give me a lot of energy
+  ‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌
+
+_oops.. they found her TwT_
+  ‌‌
+  
+![c9cdb534526c6612b600b0b94faf3358](https://github.com/user-attachments/assets/188d4a96-cfc2-47a5-9594-80d5b97242a2)
+  ‌‌‌‌  ‌ ‌ ‌  ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌‌  ‌‌  ‌bro is speechless ‌‌ ‌‌‌  ‌‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌‌‌‌  ‌‌
+![a5c6f2d6c9294084e4e7b90a4a28884f](https://github.com/user-attachments/assets/967fd404-48a7-447c-83e6-a2c0699be882)
+
+- >Btw..i design,draw,animate 2d characters :3
+i like colors and their diff vibe & and i extremely LOVE colors.
+- >i like learning and exploring new things cuz my curiousity won't let me live in peace.
+
+![9c855cc60f655b4195bf0f34c835038b](https://github.com/user-attachments/assets/e4158d97-2abe-4283-b384-f51f84f08eef)
+
+  
+  
+
+
+
+
+
+
+
