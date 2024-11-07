@@ -46,7 +46,7 @@ _oops.. they found her TwT_
   ‌‌‌‌  ‌ ‌ ‌  ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌‌  ‌‌  ‌bro is speechless ‌‌ ‌‌‌  ‌‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌‌‌‌  ‌‌
 ![a5c6f2d6c9294084e4e7b90a4a28884f](https://github.com/user-attachments/assets/967fd404-48a7-447c-83e6-a2c0699be882)
 
-- >Btw..i design,draw,animate 2d characters :3
+- >Btw..i design/draw,animate 2d characters :3
 & i extremely LOVE colors and their diff vibes.
 - >i like learning and exploring new things cuz my curiousity won't let me live in peace.
 
