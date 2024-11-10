@@ -15,6 +15,8 @@
  - > INFJ `Introverted, Intuitive, Feeling, and Judging(i really don't judge dw)` 
  - > I find myself constantly overthinking every single detail in my life and friendships, especially when it comes to things that are out of the ordinary or abnormal.
  - > **DON'T make +18 jokes and DON'T talk about sensitive topics like : domestic vi...ce, and s..ual orientation , Ab..se , self-h.rm and other things cuz they make discomfort**
+![4908f0e7b1080675cd33196034f75ef7](https://github.com/user-attachments/assets/ce4d4a19-3547-47ec-b6dc-454612e03c74)
+
  - > i appreciate positive and friendly conversations.
  - > i hate lies and disrespectful behavior so don't push my boundaries and i won't cross your line too.
  - > If you are the kind of person who tends to ignore the feelings and thoughts of those around you, DON'T int with me cuz I'm tired of toxic friendships.
