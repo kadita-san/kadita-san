@@ -56,7 +56,7 @@ _oops.. they found her TwT_
 
 ![9c855cc60f655b4195bf0f34c835038b](https://github.com/user-attachments/assets/e4158d97-2abe-4283-b384-f51f84f08eef)
 
-  
+ ‌another acc : @KadiDesu  ‌ ★ ‌  retrospring : @kadita  ‌
   
 
 
