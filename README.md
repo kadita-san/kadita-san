@@ -4,7 +4,7 @@
 
 $${\color{lightblue} Welcome \space to \space MarineMosaic \space Repository \space }$$
 
-----
+---
 <details>
  
 ![ba408e5c97fddd97d6bb98c2734d2af3](https://github.com/user-attachments/assets/4b69e278-638f-483b-8a98-60a35b645692)
@@ -26,6 +26,8 @@ $${\color{lightblue} Welcome \space to \space MarineMosaic \space Repository \sp
  - > im not white/blackwashing my cos skins . its just my style 
 
 </details>
+
+---
 
 <details>
  
@@ -57,9 +59,10 @@ _oops.. they found her TwT_
 ![9c855cc60f655b4195bf0f34c835038b](https://github.com/user-attachments/assets/e4158d97-2abe-4283-b384-f51f84f08eef)
 
  ‌‌‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌‌   ‌ ‌  ‌‌‌‌ ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌ ★ ‌  ‌‌‌ ‌  ‌ ‌‌‌‌‌  ‌‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌‌  ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ 
-  
+ 
+</details> 
 
-
+---
 
 
 
