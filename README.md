@@ -49,7 +49,7 @@ _oops.. they found her TwT_
   ‌‌
   
 ![c9cdb534526c6612b600b0b94faf3358](https://github.com/user-attachments/assets/188d4a96-cfc2-47a5-9594-80d5b97242a2)
-  ‌‌‌‌  ‌ ‌ ‌  ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌‌‌ ‌bro is speechless ‌‌ ‌‌‌  ‌‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌‌‌‌  ‌‌
+  ‌‌‌‌  ‌ ‌ ‌  ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌‌‌‌  ‌‌
 ![a5c6f2d6c9294084e4e7b90a4a28884f](https://github.com/user-attachments/assets/967fd404-48a7-447c-83e6-a2c0699be882)
 
 - >Btw..i design/draw,animate 2d characters :3
