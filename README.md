@@ -2,7 +2,7 @@
  ‌ ‌  ‌ ‌  ‌ ‌ ‌‌  ‌  ‌ ‌  ‌‌‌‌ ‌  ‌‌‌‌ 
   ‌‌ ‌‌  ‌  ‌ ‌   ‌‌ ‌‌‌‌working on :  ‌‌https://rentry.co/kaditasan ‌   ‌‌ ‌‌  ‌  ‌ ‌   ‌‌
   
-  ‌‌ ‌‌  ‌  ‌ ‌   ‌‌ PLZ SIGN : https://kadita.atabook.org/
+  ‌‌ ‌‌ ‌ ‌‌ill  be happy if u ‌‌‌‌SIGN THIS ATA : https://kadita.atabook.org/
  ‌‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌   ‌‌ ‌‌  ‌  ‌ ‌ ‌ ‌  ‌   ‌ ‌ ‌  ‌ ‌ ‌  ‌       ‌ ‌  ‌      ‌ ‌  ‌   ‌ ‌  ‌ 
     ‌‌‌‌ ‌ ‌ ‌ ‌‌ ‌ 
 
