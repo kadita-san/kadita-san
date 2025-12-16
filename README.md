@@ -1,10 +1,8 @@
-‌‌ ‌‌  ‌‌ ‌‌  ‌  ‌   ‌‌ ‌‌  ‌  ‌‌ ‌‌  ‌  ‌ ‌   ‌  ‌‌ ‌‌  ‌  ‌ ‌  ‌‌ ‌‌  ‌  ‌ ‌   ‌   ‌‌  ‌‌ ‌‌  ‌  ‌ ‌   ‌‌ ‌‌  ‌  ‌ ‌  ‌‌  ‌  ‌  ‌‌ ‌‌  ‌  ‌ ‌  ‌ ‌  ![](https://komarev.com/ghpvc/?username=kadita&color=007072&plastic)  ‌‌‌‌ ‌  
- ‌ ‌  ‌ ‌  ‌ ‌ ‌‌  ‌  ‌ ‌  ‌‌‌‌ ‌  ‌‌‌‌ 
-  ‌‌ ‌‌  ‌  ‌ ‌
- ‌‌ ‌ ‌‌ ‌ ‌ ‌ ‌ ‌  ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌‌ ‌ ‌ ‌ ‌‌ ‌   ‌‌ ‌‌  ‌  ‌ ‌ ‌ ‌  ‌   ‌ ‌ ‌  ‌ ‌ ‌  ‌       ‌ ‌ https://kadita.atabook.org/ ‌      ‌ ‌  ‌   ‌ ‌  ‌ 
-    ‌‌‌‌ ‌ ‌ ‌ ‌‌ ‌ 
+im not coming back  ‌‌ ‌‌  ‌‌ ‌‌  ‌  ‌   ‌‌ ‌‌ 
+  ‌‌https://rentry.co/BYEkadita ‌‌
+              ‌
 
-
+  ‌  ‌ ‌  
 
 
 
